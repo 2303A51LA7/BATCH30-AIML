@@ -10,6 +10,7 @@
 - ⚡ Fun fact **I Think I'm Funny**
 
 <h3 align="left">Connect with me:</h3>
+insta -- @jayanthbottu
 <p align="left">
 </p>
 
