@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Code-ing!**
 
-- 📫 How to reach me **2303a51la7@sru.edu.in**
+- 📫 Reach me via **2303a51la7@sru.edu.in**
 
 - ⚡ Fun fact **I Think I'm Funny**
 
